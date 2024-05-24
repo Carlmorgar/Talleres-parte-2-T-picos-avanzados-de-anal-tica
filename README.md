@@ -1,2 +1,2 @@
-# Talleres-parte-2-T-picos-avanzados-de-anal-tica
+# Talleres-parte-2-Topicos-avanzados-de-analtica
 Talleres parte 2 Tópicos avanzados de analítica
